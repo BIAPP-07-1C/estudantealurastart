@@ -1,3 +1,5 @@
+Este trabalho está marcado com CC0 1.0 é marcado com CC0 1.0 por BEATRIZ 
+
 ### Boas vindas ao meu perfil :blue_heart
 
 Meu nome é Beatriz Pereira Prates
